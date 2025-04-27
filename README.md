@@ -114,4 +114,4 @@ Special thanks to **Sourav Chatterjee, Ph.D.**, and the organizing committee for
 
 # 📬 Connect with Me
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/haripriyav3/)! 🚀
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/rahul-gajula-a5260318a/)! 🚀
